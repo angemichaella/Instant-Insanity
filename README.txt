@@ -1,5 +1,5 @@
 Student Name: Ange Michaella Niyonkuru
-Student ID: 8962161
+Student ID: ********
 Section C
 
 Assignment 3: Instant Insanity

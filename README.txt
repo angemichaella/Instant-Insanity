@@ -1,5 +1,5 @@
 Student Name: Ange Michaella Niyonkuru
-Student ID: ********
+linkedin.com/in/angemichaella
 Section C
 
 Assignment 3: Instant Insanity
